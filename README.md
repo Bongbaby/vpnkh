@@ -1,1 +1,1 @@
-# NETVPNPro
+# GRLAXY VPN
